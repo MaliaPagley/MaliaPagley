@@ -1,3 +1,4 @@
+![linkedin-cover-current](https://github.com/MaliaPagley/MaliaPagley/assets/103156594/bc3030f6-d663-4e40-82cf-28f56b5d86c3)
 # 💫 About Me:
 👩🏼‍💻 I'm currently learning AI and backend.<br>💚 Design is my specialty.<br>🌍 When i'm not coding, I love reading books and fitness.<br><br>
 
